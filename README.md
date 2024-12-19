@@ -5,6 +5,8 @@
 - 📫 How to reach me, abdullahiomar582@gmail.com or my linkedln (https://www.linkedin.com/in/abdulahi-jilal-327a2524a/) 
 - 😄 Pronouns: He/ Him
 - ⚡ Fun fact: I can play soccer for over 6 hours
+
+
 App brainstroming: My favorite apps are, Instagram, Tiktok and Salams
   Instagram: Hiding that you are active and ability to share reels to story
    Tiktok: Saving videos and Display the backgroud color to black
